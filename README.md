@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **yunusw718@gmail.com**
 
-- ⚡ Fun fact **I don't even know myself**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
